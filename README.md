@@ -1,2 +1,2 @@
-# cuorepazzo
-a 100% vegetarian focaccia muffuletta-style sangüich concept
+# areypagal
+a soda lab featuring health, in-house-made sodas
